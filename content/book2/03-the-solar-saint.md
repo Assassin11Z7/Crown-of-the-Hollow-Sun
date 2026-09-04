@@ -11,7 +11,9 @@ When she bid him stand, he stood, and when she bid him show them, he opened his 
 
 After the rite they took him to a vestry and sat him on a bench while a physician checked the stitches and a secretary read a list of settlements that had begun to say a name wrong. Thornveil. The pass. Boy Who Brought Noon. Solenne stood at the window and watched Cindrel's emberwells pulse under their iron hats, the city's slow, rationed heartbeat. "You will not chase him yet," she said, as if Cassian had been about to run. "You will sit in the sun we have given you and let the outer roads come to us frightened. When they are frightened enough, we will send you as a kindness. If you meet him, you will not debate. You will extinguish. A second sun is not a mercy. It is a war the land cannot afford." She turned, and her softness had an edge you could have shaved with. "Halvern thought he could bargain with what lived in him. Do not make me write your name in the same tense."
 
-Cassian touched the cloth over the shard and felt it answer like a coal poked. He said the words she wanted: he was the Church's dusk, he would not flood, he understood banks. Inside the words, a smaller voice, still choir-trained, wondered what it would be like to spend heat on a whole street just to see if the poor in the back pews had faces. He put that voice in a box. Puppets who rummaged in their own boxes did not keep their stitches. Outside, Cindrel rang the noon-bell for a noon that had not happened, and the court went home to tell itself it had been saved.
+Cassian touched the cloth over the shard and felt it answer like a coal poked. He said the words she wanted: he was the Church's dusk, he would not flood, he understood banks. Inside the words, a smaller voice, still choir-trained, wondered what it would be like to spend heat on a whole street just to see if the poor in the back pews had faces. He put that voice in a box. Puppets who rummaged in their own boxes did not keep their stitches.
+
+Outside, Cindrel rang the noon-bell for a noon that had not happened, and the court went home to tell itself it had been saved.
 
 *
 
